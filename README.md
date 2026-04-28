@@ -1,0 +1,2 @@
+# delina
+pane sakht outpmat
